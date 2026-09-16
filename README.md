@@ -1,4 +1,4 @@
-# Hola, soy Adam👋
+# Adam Founounou
 
 ## 👩‍💻 Sobre mí
 
